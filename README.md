@@ -1,1 +1,1 @@
-# marketing-analytics-portfolio
+# Senior Performance Marketing & Marketing Analytics Leader with experience managing multi-million-dollar paid search programs across global brands. I'm passionate about combining data, experimentation, automation, and AI to drive measurable business growth.
